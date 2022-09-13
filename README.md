@@ -1,0 +1,1 @@
+Gagal lah intinya mah, 
